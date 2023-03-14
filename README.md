@@ -3,5 +3,8 @@
 ### Reasons I love LEARN
 - Trish
 - Charlean
- - Bravo
- 
+- Bravo
+- Sarah
+- Elyse
+- Nicole
+- Gene
