@@ -8,3 +8,8 @@
 - Elyse
 - Nicole
 - Gene
+
+### How to develop my skills
+- Practice
+- Practice
+- Practice
