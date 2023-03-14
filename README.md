@@ -2,3 +2,6 @@
 
 ### Reasons I love LEARN
 - Trish
+- Charlean
+ - Bravo
+ 
